@@ -1,0 +1,1 @@
+kuch is trha meri palken, teri palkon pe saja dy aaaaaa
